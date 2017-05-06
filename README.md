@@ -1,3 +1,6 @@
+### P.s
+This was my submission for the Konga Game of Codes challenge but we were disqualified for late submission :D lol .
+
 Blazeh Chat 🔥🔥🔥
 ===================
 ![blazeh chat screenshot](http://fs5.directupload.net/images/170320/x7l7ynhq.png "blazeh chat screenshot")
